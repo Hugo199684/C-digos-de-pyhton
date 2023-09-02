@@ -9,3 +9,4 @@ representar a su país en la edición internacional del concurso. Tres años má
 en 2009, hizo su debut en el porno . Ese mismo año, Gómez apareció en la portada de la
 dición de noviembre de la revista colombiana Soho, donde confiesa que siempre fue de 
 su interés ser una actriz porno.
+asdadas
